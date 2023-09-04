@@ -1,1 +1,1 @@
-![CARTAZ](https://github.com/catitech-site/catitech-site.github.io/assets/143974472/060c581a-e1d6-4d9a-a85a-226bf5efaa48)
+![poster](https://github.com/catitech-site/catitech-site.github.io/assets/143974472/98e9355d-7ef9-4065-adb4-b001bf2ff10d)
